@@ -12,7 +12,7 @@
 
 ###
 
-<h3 align="center">Ryurex-Code · He/Him</h3>
+<h3 align="center">Raafi-Code · He/Him</h3>
 
 ###
 
